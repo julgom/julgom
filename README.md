@@ -2,7 +2,7 @@
 
 📩 julgomez1503@gmail.com
 
-i’m julia, a cs + ai concentration @usfca. curious and passionate to building things that matter. happy to connect!
+i’m julia, a cs + ai concentration undergrad @usfca. curious and passionate to building things that matter. happy to connect!
 
 ---
 
